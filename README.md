@@ -1,1 +1,1 @@
-![twarz](https://user-images.githubusercontent.com/102881312/161402677-5107c7f1-e414-4330-8426-91300e5e1669.png)
+![twarzz](https://user-images.githubusercontent.com/102881312/161402793-e5acfad1-324b-486f-8b7d-615f1a5bb32d.png)
